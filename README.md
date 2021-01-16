@@ -1,17 +1,15 @@
-# Festival Toro Candil
+# Festival Toro Candil 
 
 Manifestação Folclórica Internacional realizado em Porto Murtinho #PantanalSUL (MS) Brasil, nos dias 06 à 08 de dezembro 
+
+![Las Promessoras A3 001 Smartphone](https://user-images.githubusercontent.com/76437195/104819490-365b5200-5804-11eb-8306-e61f244bab00.jpg)
 
 ![Festival ToroCandilCom 2021 BANNER A3 II  Modelo 02 com separator preto](https://user-images.githubusercontent.com/76437195/104819485-2fccda80-5804-11eb-8113-8acac2153fa0.jpg)
 
 ![ToroCandilCom Quadros 2015 2018 Cleir e Pedro Guilherme](https://user-images.githubusercontent.com/76437195/104819577-b2559a00-5804-11eb-8b45-20619d35d976.jpg)
 
-![ToroCandilCom Site 2020 01 10](https://user-images.githubusercontent.com/76437195/104819583-baadd500-5804-11eb-90af-ab59e069f0cd.jpg)
-
 ![Festival ToroCandilCom 2021 4 SmartPhones](https://user-images.githubusercontent.com/76437195/104819479-293e6300-5804-11eb-8946-0feb1046d5ee.jpg)
 
-![Las Promessoras A3 001 Smartphone](https://user-images.githubusercontent.com/76437195/104819490-365b5200-5804-11eb-8306-e61f244bab00.jpg)
- 
 ![Painel Toro Candil 2018](https://user-images.githubusercontent.com/76437195/104819497-3e1af680-5804-11eb-99d7-7853d9ddedc2.jpg)
 
 ![Toro Candil 2016 001](https://user-images.githubusercontent.com/76437195/104819501-4410d780-5804-11eb-97b9-03c9922a214b.jpg)
@@ -39,3 +37,9 @@ Manifestação Folclórica Internacional realizado em Porto Murtinho #PantanalSU
 ![Toro Candil 2020 02](https://user-images.githubusercontent.com/76437195/104819568-a23dba80-5804-11eb-8148-ca330d34adfd.jpg)
 
 ![ToroCandil 2018 Mosaico](https://user-images.githubusercontent.com/76437195/104819572-a964c880-5804-11eb-821a-0e5365929a94.jpg)
+
+Site 2020
+
+![ToroCandilCom Site 2020 01 10](https://user-images.githubusercontent.com/76437195/104819583-baadd500-5804-11eb-90af-ab59e069f0cd.jpg)
+
+
